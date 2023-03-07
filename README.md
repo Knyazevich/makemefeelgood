@@ -21,6 +21,10 @@
 
 * [Кіт з гри Postal](https://www.psdinfo.store/product-page/suppressor-psdinfo-5-56-223-rem-unef-1-2-28)
 
+* [Ручка зведення](https://ibis.net.ua/ua/products/details/rukoyatka-vzvedeniya-radian-raptor-dvustoronnyaya-ar15/)
+
+* [Запобіжник](https://ibis.net.ua/ua/products/details/zapobizhnik-bcm-ambi-dvostoronniy-k-chorniy/)
+
 ## Також дуже треба
 
 * [Ше одні ноші](https://www.timeforrescue.com.ua/product/%d0%bd%d0%be%d1%88%d1%96-%d0%bc%d1%8f%d0%ba%d1%96/)
