@@ -30,3 +30,7 @@
 * [Якийсь мужичок](https://easypractice.pro/uk/product/nasopharyngeal_simulator/)
 
 * [Рубзак](https://akinak.com.ua/ua/p1392452050-ryukzak-akinak-meditsinskij.html)
+
+* [Чашечка](https://zojirushi.ua/zojirushi-sm-sr/?sku=886)
+
+* Crocs Classic красивого кольору з [пінами](https://crocs.org.ua/jibbitz/sea-friends-5-pack)
