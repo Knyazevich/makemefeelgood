@@ -3,13 +3,13 @@
 Оскільки зараз в мене немає ні часу ні син на розробку сервісу-мрії, викладаю свій вішліст для зручності тут.
 
 ## Книги
-* [Анатомія Неттера](https://www.medpublish.com.ua/atlas-anatomiyi-ljudini-atlas-of-human-anatomy-phrenk-g-netter-pereklad-7go-angl-vidannja-dvi-movi/p-954.html)
+* [~~Анатомія Неттера~~](https://www.medpublish.com.ua/atlas-anatomiyi-ljudini-atlas-of-human-anatomy-phrenk-g-netter-pereklad-7go-angl-vidannja-dvi-movi/p-954.html)
 
 * [Чтиво по ЕКГ](https://www.medpublish.com.ua/osnovi-ekg-9e-vidannja-dzhon-hempton-dzhoanna-hempton-dvi-movi/p-956.html)
 
-* [Професійне чтиво раз](https://www.medpublish.com.ua/pharmakologija-za-rangom-i-dejlom-9e-vidannja-u-2-tomah-tom-1-dzhejms-m-ritter-rod-phlaver-grem-genderson-jun-kong-louk-devid-makjuen-gamphri-p-rang/p-981.html)
+* [~~Професійне чтиво раз~~](https://www.medpublish.com.ua/pharmakologija-za-rangom-i-dejlom-9e-vidannja-u-2-tomah-tom-1-dzhejms-m-ritter-rod-phlaver-grem-genderson-jun-kong-louk-devid-makjuen-gamphri-p-rang/p-981.html)
 
-* [Професійне чтиво два](https://www.medpublish.com.ua/pharmakologija-za-rangom-i-dejlom-9e-vidannja-u-2-tomah-tom-2-dzhejms-m-ritter-rod-phlaver-grem-genderson-jun-kong-louk-devid-makjuen-gamphri-p-rang/p-1000.html)
+* [~~Професійне чтиво два~~](https://www.medpublish.com.ua/pharmakologija-za-rangom-i-dejlom-9e-vidannja-u-2-tomah-tom-2-dzhejms-m-ritter-rod-phlaver-grem-genderson-jun-kong-louk-devid-makjuen-gamphri-p-rang/p-1000.html)
 
 ## На часі
 
@@ -33,7 +33,7 @@
 
 * [Якийсь мужичок](https://easypractice.pro/uk/product/nasopharyngeal_simulator/)
 
-* [Рубзак](https://akinak.com.ua/ua/p1392452050-ryukzak-akinak-meditsinskij.html)
+* [~~Рубзак~~](https://akinak.com.ua/ua/p1392452050-ryukzak-akinak-meditsinskij.html)
 
 * [Чашечка](https://zojirushi.ua/zojirushi-sm-sr/?sku=886)
 
