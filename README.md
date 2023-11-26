@@ -11,13 +11,19 @@
 
 * [~~Професійне чтиво два~~](https://www.medpublish.com.ua/pharmakologija-za-rangom-i-dejlom-9e-vidannja-u-2-tomah-tom-2-dzhejms-m-ritter-rod-phlaver-grem-genderson-jun-kong-louk-devid-makjuen-gamphri-p-rang/p-1000.html)
 
-## На часі
+## Піу-піу 🔫
 
-* [Патчі для стволу](https://www.psdinfo.store/product-page/%D0%BF%D0%B0%D1%82%D1%87%D1%96-%D0%B4%D0%BB%D1%8F-%D1%87%D0%B8%D1%89%D0%B5%D0%BD%D0%BD%D1%8F-%D1%81%D1%82%D0%B2%D0%BE%D0%BB%D1%96%D0%B2-8x57-mauser-8-3-mm-338-38-9-mm-9x18-9x19-9x2)
+* [Патчі](https://www.psdinfo.store/product-page/%D0%BF%D0%B0%D1%82%D1%87%D1%96-%D0%B4%D0%BB%D1%8F-%D1%87%D0%B8%D1%89%D0%B5%D0%BD%D0%BD%D1%8F-%D1%81%D1%82%D0%B2%D0%BE%D0%BB%D1%96%D0%B2-8x57-mauser-8-3-mm-338-38-9-mm-9x18-9x19-9x2)
 
-* [Фейрі для зброї](https://www.psdinfo.store/product-page/%D0%BE%D1%87%D0%B8%D1%89%D1%83%D0%B2%D0%B0%D1%87-%D0%B7%D0%BD%D0%B5%D0%B6%D0%B8%D1%80%D1%8E%D0%B2%D0%B0%D1%87-recoil-500-%D0%BC%D0%BB)
+* [Миюче](https://www.psdinfo.store/product-page/%D0%BE%D1%87%D0%B8%D1%89%D1%83%D0%B2%D0%B0%D1%87-%D0%B7%D0%BD%D0%B5%D0%B6%D0%B8%D1%80%D1%8E%D0%B2%D0%B0%D1%87-recoil-500-%D0%BC%D0%BB)
+
+* [Ще миюче](https://psd-info.com/products/%D0%BE%D1%87%D0%B8%D1%81%D0%BD%D0%B8%D0%BA-%D0%BD%D0%B0%D0%B3%D0%B0%D1%80%D1%83-%D1%82%D0%B0-%D0%BA%D0%B0%D1%80%D0%B1%D0%BE%D0%BD%D0%BE%D0%B2%D0%B8%D1%85-%D0%B2%D1%96%D0%B4%D0%BA%D0%BB%D0%B0%D0%B4%D0%B5%D0%BD%D1%8C-recoil)
+
+* [Маселко](https://psd-info.com/products/%D1%81%D0%B8%D0%BD%D1%82%D0%B5%D1%82%D0%B8%D1%87%D0%BD%D0%B5-%D0%BC%D0%B0%D1%81%D1%82%D0%B8%D0%BB%D0%BE-%D0%B4%D0%BB%D1%8F-%D0%B4%D0%BE%D0%B3%D0%BB%D1%8F%D0%B4%D1%83-%D0%B7%D0%B0-%D0%B7%D0%B1%D1%80%D0%BE%D1%94%D1%8E-recoil)
 
 * [Якась паличка......](https://www.psdinfo.store/product-page/%D1%88%D0%BE%D0%BC%D0%BF%D0%BE%D0%BB-%D0%BA%D0%B0%D1%80%D0%B1%D0%BE%D0%BD%D0%BE%D0%B2%D0%B8%D0%B9-recoil-6-%D0%BC%D0%BC-%D0%B4%D0%BB%D1%8F-%D1%87%D0%B8%D1%81%D1%82%D0%BA%D0%B8-%D0%BD%D0%B0%D1%80%D1%96%D0%B7%D0%BD%D0%BE%D1%97-%D0%B7%D0%B1%D1%80%D0%BE%D1%97-%D0%B4%D0%BE%D0%B2%D0%B6%D0%B8%D0%BD%D0%B091-4-%D1%81%D0%BC-36)
+
+* [Набір для чистки](https://psd-info.com/products/%D0%BD%D0%B0%D0%B1%D1%96%D1%80-%D0%B4%D0%BB%D1%8F-%D1%87%D0%B8%D1%89%D0%B5%D0%BD%D0%BD%D1%8F-%D0%B7%D0%B1%D1%80%D0%BE%D1%97-real-avid-gun-boss-ar15-tactical-cleaning-kit)
 
 ## Також дуже треба
 
